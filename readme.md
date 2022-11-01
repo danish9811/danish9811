@@ -1,1 +1,1 @@
-### Passionate PHP/JS Fullstack engineer | Company's profie
+### Passionate PHP / JS Developer | Building Products | Adding My Skill set
